@@ -35,11 +35,6 @@
 
 ---
 
-
 ## 🌐 Connect with Me  
 [![LinkedIn](www.linkedin.com/in/pradip-bisht-879753271  
 
-
-
----
-✨ _“Code. Build. Learn. Repeat.”_
